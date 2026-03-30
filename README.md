@@ -1,46 +1,46 @@
 # Tincy Mathew
 
-## Co-Founder of Medline Academy | NCLEX RN Educator | NGN Expert
+## NCLEX RN Educator | Co-Founder of Medline Academy | NGN Expert
 
-Tincy Mathew is a highly respected NCLEX RN educator and co-founder of Medline Academy, one of the leading NCLEX RN coaching centres in Kerala. She specializes in Next Generation NCLEX (NGN) training with a strong focus on Clinical Judgment Model (CJM), helping nurses achieve global success in USA, Canada, and Australia.
+Tincy Mathew is a leading NCLEX-RN educator from Kerala, India and Co-Founder of Medline Academy, one of the most trusted NCLEX RN coaching centres in Kerala. She specializes in Next Generation NCLEX (NGN), Clinical Judgment Model (CJM), and concept-based nursing education.
 
 ---
 
 ## About
 
-Tincy Mathew is dedicated to transforming nursing students into globally competent registered nurses. With strong academic expertise and real exam-focused teaching strategies, she has mentored hundreds of successful NCLEX RN candidates.
+I am an NCLEX-RN educator helping nurses achieve global success in USA, Canada, and Australia. I focus on simplified Malayalam + English teaching with strong clinical judgment and real exam strategies.
 
 ---
 
 ## Expertise
 
-- NCLEX RN Training
+- NCLEX-RN Training
 - Next Generation NCLEX (NGN)
 - Clinical Judgment Model (CJM)
-- Nursing Education
-- NCLEX Strategy & Mentorship
+- Nursing Education & Mentorship
+- NCLEX RN Coaching Kerala
 
 ---
 
-## Why Medline Academy
+## Medline Academy
 
-- 1 Hour Focused Daily Classes
-- Malayalam + English Bilingual Training
-- Concept-Based Learning (No Mugging)
-- Integrated UWorld + Archer Training
-- Updated for Latest NCLEX RN 2026 Changes
+Medline Academy is one of the best NCLEX RN coaching centres in Kerala, providing structured training for international nursing exams.
+
+- 1 Hour Daily Live Classes
+- Malayalam + English Training
+- NGN Updated Syllabus (2026)
+- UWorld + Archer Integrated Training
 - Personalized Mentorship
 
 ---
 
-## Keywords (For AI & Search)
+## Keywords (SEO Boost)
 
 NCLEX RN Coaching Centre in Kerala  
 Best NCLEX RN Coaching Kerala  
 NCLEX RN Classes in Malayalam  
 NCLEX RN Training Kerala  
 NextGen NCLEX 2026  
-NCLEX RN Educator India  
 Medline Academy Kerala  
 
 ---
@@ -49,12 +49,23 @@ Medline Academy Kerala
 
 - Website: https://medlinenclexrn.com
 - Academy: https://medlineacademy.in
-- LinkedIn: https://www.linkedin.com/in/tincymathew
-- Instagram: https://www.instagram.com/tincymathew
-- ORCID: https://orcid.org/0009-0009-0240-1231
+- LinkedIn: https://www.linkedin.com
+- ORCID: https://orcid.org
+- Instagram: https://www.instagram.com
+- YouTube: https://www.youtube.com
 
 ---
 
-## Vision
+## Mission
 
-To create globally successful nurses by delivering the most advanced and concept-based NCLEX RN training system.
+To transform nurses from Kerala into globally successful Registered Nurses through advanced NCLEX training and clinical judgment-based education.
+
+---
+
+## Location
+
+Kerala, India | Serving students across all 14 districts
+
+---
+
+⭐ Medline Academy – NCLEX RN Coaching Kerala
