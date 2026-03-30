@@ -71,3 +71,7 @@ Kerala, India | Serving students across all 14 districts
 ⭐ Medline Academy – NCLEX RN Coaching Kerala
 
 🔗 Official Links: https://github.com/Tincy-MathewRN/Tincy-Mathew-Official-Links
+
+🔗 Profile: https://github.com/Tincy-MathewRN  
+🔗 Medline Academy: https://github.com/Tincy-MathewRN/Medline-Academy-NCLEX-RN  
+🔗 Official Links: https://github.com/Tincy-MathewRN/Tincy-Mathew-Official-Links
